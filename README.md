@@ -1,3 +1,1 @@
 ﻿# Civic_issue
-# Civic_issue
-
